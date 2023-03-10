@@ -5,3 +5,5 @@
 
 -----------------Thank You-------------------
 ----------------Visit again------------------
+The management has been taken 
+helloooooooooooooooooooooooooo
